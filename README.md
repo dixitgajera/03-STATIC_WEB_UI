@@ -1,0 +1,1 @@
+# STATIC_WEB_UI-03![screencapture-file-C-Users-Dixit-Desktop-The-DG-03-Static-Web-Ui-index-html-2023-03-23-20_16_25](https://user-images.githubusercontent.com/125350087/227241991-4002d999-9c3f-4651-9782-d1e41ec197d6.png)
